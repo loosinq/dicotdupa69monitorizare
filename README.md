@@ -1,2 +1,2 @@
 # dicotdupa69monitorizare
-# 4078c0
+AD5C51 ez
